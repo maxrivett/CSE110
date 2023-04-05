@@ -1,1 +1,1 @@
-# CSE110
+# Max Rivett's User Page
